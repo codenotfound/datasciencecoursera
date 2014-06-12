@@ -1,0 +1,2 @@
+**Limit situations** are moments, usually accompanied by experiences of dread, guilt or acute anxiety, in which the human mind confronts the restrictions and pathological narrowness of its existing forms, and allows itself to abandon the securities of its limitedness, and so to enter new realm of self-consciousness.
+[Source] (http://plato.stanford.edu/entries/jaspers/#EarWri)
